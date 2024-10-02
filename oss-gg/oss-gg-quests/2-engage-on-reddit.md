@@ -16,6 +16,6 @@ Your turn 👇
 
 ////////////////////////////
 
-» 01-October-2024 by X
+» 03-October-2024 by [@adityadeshlahre](https://www.reddit.com/user/adityadeshlahre/)
 
 ---
